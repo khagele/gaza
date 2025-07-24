@@ -20,7 +20,7 @@ You can contact me at **khagele @ gmail.com**, or send a DM via [LinkedIn](https
 
 -
 
-##In Memoriam
+#In Memoriam
 
 ### July 11, 2025 — **Atif**  
 Our cousin **Atif** was shot dead at a food distribution point, where he was trying to collect flour for his wife and two children.
