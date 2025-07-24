@@ -1,14 +1,12 @@
 My name is Kasper, 39 years old, living in Nijmegen - The Netherlands, with my wife and our three daughters.
 
-On behalf of my wife and in-laws Ferial, Seria, Nivine, Suhail, Zahia, I am asking for your help. They have many close family members in Gaza. Their father's and uncle’s siblings, uncles and aunts, cousins, and their half-siblings all live there with their families. My wife has lived in Gaza as a child and knows their faces and voices.  
+On behalf of my wife and in-laws Ferial, Seria, Nivine, Suhail, Zahia, I am asking for your help. They have many close family members in Gaza. Their father's and uncle’s siblings, uncles and aunts, cousins, and their half-siblings all live there with their families. My wife lived in Gaza as a child and knows their faces and voices.  
 
 We worry every single day. We know they are suffering from hunger and a lack of clean drinking water. At the same time, we see no hopeful perspective for what comes next as the situation is worsening rapidly.
 
-We support them from here by sending money directly. This is used for clean water, food, medicine, fuel, and materials for tents, everything needed to keep our family and those around them alive for as long as possible.
+We support them from here by sending money directly. This is used for clean water, food, medicine, fuel, and materials for tents, everything needed to keep our family and those around them alive for as long as possible. Sometimes we receive charitable donations (called zakat) for them to support other (unrelated) families.
 
-By marking donations as alms (_Zakaat_ & _Zakaat al-Fitr_), they have already supported 65 other unrelated families. Despite everything, that duty is sacred and they take care of the vulnerable within their reach.
-
-Every contribution via the links below helps and directly impacts extending the lives of these people. **Thank you.**
+Every contribution via the links below helps and directly impacts extending the lives of these humans. **Thank you.**
 
 - **PayPal (PayPal & Credit Card):** [https://www.paypal.com/donate/?hosted_button_id=PCWFDCGGFLVFJ](https://www.paypal.com/donate/?hosted_button_id=PCWFDCGGFLVFJ)  
 - **Revolut (Credit Card, Google Pay, Apple Pay):** [https://revolut.me/kasperypld](https://revolut.me/kasperypld)  
