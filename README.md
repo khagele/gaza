@@ -14,11 +14,11 @@ Every contribution via the links below helps and directly impacts extending the 
 - **Revolut (Credit Card, Google Pay, Apple Pay):** [https://revolut.me/kasperypld](https://revolut.me/kasperypld)  
 - **iDeal (Dutch):** [https://oft.ovh/gaza](https://oft.ovh/gaza) (ASN Bank payment request)
 
----
+-
 You can contact me at **khagele @ gmail.com**, or send a DM via [LinkedIn](https://www.linkedin.com/in/kasperh%C3%A4gele/) or [Instagram](https://www.instagram.com/kasperworks/)
----
+-
 
-In Memoriam
+##In Memoriam
 
 ### July 11, 2025 — **Atif**  
 Our cousin **Atif** was shot dead at a food distribution point, where he was trying to collect flour for his wife and two children.
