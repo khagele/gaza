@@ -1,6 +1,6 @@
 My name is Kasper, 39 years old, living in Nijmegen - The Netherlands, with my wife and our three daughters.
 
-On behalf of my wife and in-laws Ferial, Seria, Nivine, Ingram, Brahim, Rafiq, Sofiaan, Suhail, Zahia, Hiba, Bilal, and Zain, living in Nijmegen, Elst, and Utrecht - The Netherlands, I am asking for your help. They have many close family members in Gaza. Their father's and uncle’s siblings, uncles and aunts, cousins, and half-siblings all live there with their families.
+On behalf of my wife and in-laws I am asking for your help. They have many close family members in Gaza. Their father's and uncle’s siblings, uncles and aunts, cousins, and their half-siblings all live there with their families. My wife has lived in Gaza as a child and knows their faces and voices.  
 
 We worry every single day. We know they are suffering from hunger and a lack of clean drinking water. At the same time, we see no hopeful perspective for what comes next as the situation is worsening rapidly.
 
